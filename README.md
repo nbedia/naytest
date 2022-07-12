@@ -4,3 +4,7 @@
 just gonna checkout some cool stuff bro
 
 # arsenal's latest signing is Jesus.
+
+elneny, signed a new contract
+
+#best Egyptian in prem
